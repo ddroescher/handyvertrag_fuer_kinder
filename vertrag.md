@@ -17,7 +17,7 @@
 
 ## Das Handy und deine Familie
 
-- Dein Bruder ist noch sehr jung. Benutze das Handy nicht, um ihn zu ärgern oder ihn damit eifersüchtig zu machen.
+- Deine Schwester ist noch sehr jung. Benutze das Handy nicht, um sie zu ärgern oder sie damit eifersüchtig zu machen.
 - Das Handy wird 1 Stunde vor Schlafenszeit im Flur an einem sicheren Ort verwahrt. Es wird lautlos gestellt.
 - Mama und Papa wollen, dass du dich für die Welt um dich herum interessierst. Du hast Spaß an Sport, Musik und am meisten mit deinen Freundinnen. Diesen Spaß sollst du nicht durch das Handy ersetzen. Nutze es lieber dazu, um diese Hobbies weiter zu entwickeln.
 
